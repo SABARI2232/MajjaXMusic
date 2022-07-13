@@ -1,5 +1,5 @@
 <h2 align="center">
-    ──「 ᴍᴀᴊᴊᴀ 😈 ᴇxᴘʀᴇss 」──
+    ──「 miracle 😈 ᴇxᴘʀᴇss 」──
 </h2>
 
 <p align="center">
